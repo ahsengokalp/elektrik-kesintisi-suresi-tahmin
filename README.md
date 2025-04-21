@@ -1,0 +1,1 @@
+# elektrik-kesintisi-s-resi-tahmin
